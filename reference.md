@@ -1,2 +1,0 @@
--  Online Tutorials: https://youtu.be/t9KBVqloY9E?si=VwTzhilBxfwWc_fG
-- Image Reference: https://wallhaven.cc/w/7p5kxo
